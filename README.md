@@ -1,2 +1,2 @@
 # Hola-mundo
-Espero ganra money 
+Espero ganar money 
